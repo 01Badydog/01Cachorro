@@ -12,4 +12,4 @@ Meu nome é **Ana luiza**
 
 @_maschio.luizaa
 
-![](]https://media1.tenor.com/m/OF697Z4kAlEAAAAd/chico-moedas-gifs.gif)
+![](https://media1.tenor.com/m/OF697Z4kAlEAAAAd/chico-moedas-gifs.gif)
